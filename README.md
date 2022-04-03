@@ -2,7 +2,7 @@
 - 👀 I’m interested in ur mom
 - 🌱 I’m currently learning how to stay alive
 - 💞️ I’m looking to collaborate on deezcord
-- 📫 contact me on deezcord : root#1697
+- 📫 contact me on deezcord : missing#
 
 <!---
 r00tlol/r00tlol is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
